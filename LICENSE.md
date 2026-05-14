@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with top NFT Scanner for nft mint bot | NFT-sniping & gas-optimization, the #1 nft mint bot. Includes NFT-sniping and gas-optimization for a faster and
 
 
 
